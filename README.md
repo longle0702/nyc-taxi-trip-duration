@@ -1,3 +1,1 @@
-# lingang guli guli guli wacha lingangu lingangu
-lingang guli guli guli wacha lingangu lingangu lingang guli guli guli wacha lingangu lingangu lingang guli guli guli wacha lingangu lingangu lingang guli guli guli wacha lingangu lingangu lingang guli guli guli wacha lingangu lingangu lingang guli guli guli wacha lingangu lingangu
-lingang guli guli guli wacha lingangu lingangu
+i dont hang with rats that's some new type shit
