@@ -1,2 +1,1 @@
-I dont hang with rats that's some new type shit
-
+This is a mini project from a Kaggle competition, in collaboration with Tran Minh Duong
